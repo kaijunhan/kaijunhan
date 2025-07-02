@@ -1,4 +1,4 @@
-# Hey, I'm Kai 😇
+# Hey, I'm Kai 🌞
 
 **Thanks for checking out my Github profile!**
 
